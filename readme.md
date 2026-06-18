@@ -6,3 +6,4 @@
 
 # [Seni](https://docs.google.com/forms/d/e/1FAIpQLScGcwcK-ZerFsr_eKPP6NVWg7cAwOieNN_X_Vjmhtamh_niZQ/viewform)
 
+# [Matematika](https://docs.google.com/forms/d/e/1FAIpQLSfxsh6vCiuWiaiLiFh_T59WXaKIGc5bB89iJX5C9QIEJ-TF6A/viewform)
