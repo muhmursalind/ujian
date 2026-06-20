@@ -7,3 +7,7 @@
 # [Seni](https://docs.google.com/forms/d/e/1FAIpQLScGcwcK-ZerFsr_eKPP6NVWg7cAwOieNN_X_Vjmhtamh_niZQ/viewform)
 
 # [Matematika](https://docs.google.com/forms/d/e/1FAIpQLSfxsh6vCiuWiaiLiFh_T59WXaKIGc5bB89iJX5C9QIEJ-TF6A/viewform)
+
+# [Mulok](https://docs.google.com/forms/d/e/1FAIpQLScdqHZtTmklZVlBIvCc4p7cLz_QeqjgGEhXGRuW0hEumxtUxw/viewform)
+
+# [Bhs Inggris](https://docs.google.com/forms/d/e/1FAIpQLSdMHj1yifiSq343pM0CobrAT5kH4hVPnYN5-Toa-kHRY-XTCQ/viewform)
